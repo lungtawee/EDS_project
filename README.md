@@ -5,7 +5,7 @@ Mr thanagorn
 
 Mr Aekkarat
 
-Mr Theerapa
+Mr Theerapat
 
 "this sentence is written on Hub Thanagorn"
 
