@@ -6,4 +6,4 @@ Mr thanagorn
 Mr Aekkarat
 
 Mr Theerapa
-"This sentence is written by lungtawee"
+
